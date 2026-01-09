@@ -1,0 +1,1 @@
+# alinco-dj-vx50
